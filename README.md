@@ -1,0 +1,2 @@
+# premium-heraldic-flag-001-heraldic-flag-blazon-design-gu
+Tired of designing heraldic flags that look more like logo mishmashes than authentic medieval banners? The Heraldic Flag Blazon Design Guide turns your chaotic sketches into a disciplined, rule-based blazon that any vexillologist would approve.  This Notion template replaces guesswork with a proven framework. It guides you through every step: from
